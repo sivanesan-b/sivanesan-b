@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sivanesan-b
-- 👀 I’m interested in learning tech:)
+- 👀 I love to learn new technologies:)
 - 🌱 I’m currently learning Core Java🍵 and its Frameworks🍃!!
 - 📫 Reach me @sivanesanb.24@gmail.com
 - ⚡ Fun fact: Electrical Engineer as well⚡
